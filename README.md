@@ -1,2 +1,5 @@
 # hello-world
-Snooki want smush smush
+
+Hey Guys,
+
+Snooks is all about that smush. 
